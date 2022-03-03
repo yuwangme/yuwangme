@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @yuwangme
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning crytography
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in lots of things
+- 🌱 I’m currently learning crytography and social dance
+- 💞️ I’m looking to collaborate on cryptocurrency project
 - 📫 How to reach me Linkedin @yuwangme
 
 <!---
